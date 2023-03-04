@@ -12,6 +12,19 @@ I've been working as a junior marketing at PT. ANUGRAH BINTANG TRIJAYA CONSTRUCT
 
 currently, my job as sales to sale computer parts (cables, hub, cable ports, etc) and if you want to rent a server, you can also contact me. 0983*** hehe 
 
+### My advanture in Taiwan
+
+here's my Taiwan trips with my friends.
+Hehuan Mountain-> Theme Park -> Sun Moon Lake -> Mountain again hehehe
+<p align="left">
+<img src="1668958653405..jpg" width="250"  p align="right">  <img src="line_320616710284411.jpg" width="250">
+<p align="left">
+<img src="line_320621185822066.jpg" width="250"  p align="right">  <img src="line_320645895880650.jpg" width="250">
+ “A good friend listens to your adventures. Your best friend makes them with you.”
+
+
+
+
 yey! wilujeng kantun. 
 
 
