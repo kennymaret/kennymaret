@@ -21,7 +21,8 @@ Hehuan Mountain-> Theme Park -> Sun Moon Lake -> Mountain again hehehe
 <p align="left">
 <img src="line_320621185822066.jpg" width="250"  p align="right">  <img src="line_320645895880650.jpg" width="250">
 
- “A good friend listens to your adventures. Your best friend makes them with you.”
+ 
+ "A good friend listens to your adventures. Your best friend makes them with you."
 
 
 
