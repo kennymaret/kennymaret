@@ -23,7 +23,7 @@ Hehuan Mountain-> Theme Park -> Sun Moon Lake -> Mountain again hehehe
 
 
 ### My Social Media
-- <a href="https://instagram.com/kennystefanus" target="blank"><img align="center" src="instalogo.jpeg" Width="55" height="50" alt="kennystefanus"/></a>
+- <a href="https://instagram.com/kennystefanus" target="blank"><img align="center" src="Instalogo.jpeg" Width="55" height="50" alt="kennystefanus"/></a>
 
 
  "A good friend listens to your adventures. Your best friend makes them with you."
